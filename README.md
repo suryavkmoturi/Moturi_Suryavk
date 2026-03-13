@@ -1,4 +1,4 @@
 Moturi Surya venkata kiran
-EDUCATION
+EDUCATION \n
 MlR institution of technology
 Motivated
